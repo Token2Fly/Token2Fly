@@ -18,4 +18,5 @@ EXPANDS ON OUR INCORPORATION OF MUSIC WITHIN THE METAVERSE. WE WILL LOOK TO SUPP
 
 Https://Fireflytokenjar.com
 BSC Address  0x2ce7e317eE862f2c2494eA14C32A61eA697B30B6
-![image](https://user-images.githubusercontent.com/99470200/153557558-f485e1c2-2a53-4510-b1e9-bc6e3784d4b7.png)
+![image](https://user-images.githubusercontent.com/99470200/153557949-818614f0-c2a2-4711-8f9b-4d4b3a777f9f.png)
+
